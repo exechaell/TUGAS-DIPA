@@ -1,4 +1,4 @@
-Thanks for downloading this template!
+credit:
 
 Template Name: eBusiness
 Template URL: https://bootstrapmade.com/ebusiness-bootstrap-corporate-template/
